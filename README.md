@@ -1,2 +1,1 @@
-# BANDI-water-
-To mitigate climate change receliance projects 
+# BANDI-water-                  Clean water for all 
